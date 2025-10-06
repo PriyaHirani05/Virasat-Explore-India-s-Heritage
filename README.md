@@ -1,1 +1,1 @@
-# Virasat-Explore-India-s-Heritage
+# DiscoveryLocal
